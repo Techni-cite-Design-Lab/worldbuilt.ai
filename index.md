@@ -7,4 +7,4 @@
 ##### Discussion is activated in [Github project page](https://github.com/Techni-cite-Design-Lab/worldbuilt.ai/discussions).<br><br>
 
 
-#### ***All Made of Teks - Infinite family***
+#### ***All Made of [Teks](http://www.teks.fyi) - Infinite family***
