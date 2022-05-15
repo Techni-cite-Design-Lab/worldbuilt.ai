@@ -1,2 +1,2 @@
-#### See [WorldBuilt.ai](www.worldbuilt.ai)  
+#### See [WorldBuilt.ai](http://www.worldbuilt.ai)  
 
